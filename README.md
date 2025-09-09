@@ -1,2 +1,0 @@
-# guddla-vishnu
-Bsc -b
